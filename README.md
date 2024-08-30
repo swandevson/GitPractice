@@ -14,4 +14,7 @@
 - 일 시: 2024.3.29.
 - 장 소: 한국전파진흥협회 가산DX캠퍼스
 
+<img width="367" alt="스크린샷 2024-08-30 오후 3 25 59" src="https://github.com/user-attachments/assets/7f595cdc-1a48-4331-b77b-40dca803c61a">
+
+
    
